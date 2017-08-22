@@ -1,1 +1,3 @@
-# devops-aula02
+Caio Castro
+Claudia Raia
+Edson Celulari
