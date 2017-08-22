@@ -1,3 +1,4 @@
 Caio Castro
-Claudia Raia
+Angelina Jolie
 Edson Celulari
+Bruna Marquezine
