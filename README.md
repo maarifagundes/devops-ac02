@@ -1,4 +1,3 @@
-Caio Castro
-Angelina Jolie
-Edson Celulari
-Bruna Marquezine
+Mos Def
+James Franco
+Seth Rogen
