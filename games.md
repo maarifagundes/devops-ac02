@@ -1,3 +1,3 @@
-GTA
-FIFA
-PES
+- GTA V
+- The Witcher 3
+- CSGO
